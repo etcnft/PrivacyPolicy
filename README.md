@@ -1,0 +1,2 @@
+# PrivacyPolicy
+ETCNFT Privacy Policy
